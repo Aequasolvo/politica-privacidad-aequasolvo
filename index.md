@@ -41,4 +41,4 @@ Podemos actualizar esta política de privacidad de vez en cuando. Te notificarem
 
 ### 7. Contacto
 
-Si tienes alguna pregunta sobre esta Política de Privacidad, por favor, contáctanos en: **aequasolvo@gmail.com**
+Si tienes alguna pregunta sobre esta Política de Privacidad, por favor, contáctanos en: **contacto@aequasolvo.com**
